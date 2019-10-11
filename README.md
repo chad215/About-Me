@@ -34,3 +34,4 @@ Here is a few pictures of the artist[Image of playboi Carti](https://images.comp
 1. All American
 2. Big Mouth
 3. Raising Dion
+Here is an image of one of my favorite tv show [Image of raising Dion] (https://www.theguardian.com/books/2015/sep/01/raising-dion-comic-book-diversity-dennis-liu#img-1)
